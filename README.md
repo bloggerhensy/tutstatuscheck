@@ -1,1 +1,1 @@
-# tutstatuscheck
+Are you looking for the [status of your TUT application](https://tutstatuscheck.co.za/) in 2024? You’ve come to the right place! You can easily check your application online. Simply click on the provided link, enter your name and ID number, and then click submit. We explain in detail below the article.
